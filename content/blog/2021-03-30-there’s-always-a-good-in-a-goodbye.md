@@ -1,0 +1,27 @@
+---
+title: THERE’S ALWAYS A GOOD IN A GOODBYE
+description: Always a  good in a good bye
+---
+A story is told about three little pigs who lived in the forest in one of our fables who decided to build their houses separately. They built their houses with sticks, hay stacks and bricks respectively. Unknown to them, the wolf came and devoured the first two and burnt down their houses sparing the third as it was unable to pull down the house made with bricks.
+
+
+
+FAST FORWARD TO 2020
+
+Metaphorically, the coronavirus is the wolf and the house made of bricks are the countries with great plans and innovative leaders. As stated afore in the fable where the pigs had the least notion that the wolf would appear, most countries did not know the adverse effect the pandemic will have on their nations. 
+
+Taking it from the sphere of education, the coronavirus pandemic is having a devastating effect on education worldwide and in an attempt to contain the spread has led to temporal closure of schools and institutions.
+
+ Before the outbreak of the virus, final year students were attending lectures, attending final year master classes, taking quizzes and undertaking project works. All these academic activities required the gathering of these students but has come to a halt due to the pandemic. Students were made to go home to continue and somewhat end the academic year. Online lectures began effectively for some students which, to the best of my knowledge was a very good strategy for students who had access to good internet connection, smart phones, personal computers and had made full payments of fees. For some schools like UPSA, students who had paid their fees fully were the ones who had access to the virtual platform. This has greatly affected the less disadvantaged students although it has helped other students make judicious use of technology.
+
+There is nothing like a good crisis but good effects. In every situation, there are both good and bad sides. However, heads of various institutions realized they can’t wait till the pandemic is over before resuming academic activities. Life must go on regardless of the pandemic. Hence, something had to be done, that is introducing the distance learning or virtual learning. Some schools introduced webinars, lecture slides, audios and videos for students via zoom, google classroom, telegram and other mobile applications. “We need to build on the speed and enthusiasm with which academics have embraced online teaching”, argues Dawn Lerman and Falguni Sen.  This is a clear indication that online education is as vital as physical education with many advantages. 
+
+The pandemic has made final year students utilize their time very well for studies through the online lectures and quizzes. Online learning has forced massive adaptation for students to be conversant with how it works regarding how information, lectures and course works are delivered. Although it requires some form of technical capacity and expertise, it broadens the minds of students as they become very informative and have the urge to learn more about technology and how it works. Everyone can attest to the fact that technology is a convenient way of doing things in this era, thus including it in academics is a boon. 
+
+Another way the pandemic has affected academics positively is the fact that people have become appreciative of technology. Not to say people did not know the use and importance of technology but it wasn’t considered as a factor to be included in academics and some other institutions. Universities and academic institutions should embrace this staff engagement and seize the opportunity to transform pedagogy to meet the needs of the next generation of students. Incoming undergraduate and graduate students will have the skills and expectations about the use of technology on campuses and be appreciative of it. 
+
+Furthermore, the pandemic is encouraging students to prepare for the job markets and what to expect. As subtle as this may seem, there is a high level of accuracy and precision in it. Most companies and work places have laid off their workers as a result of social distancing which is a preventive measure to the pandemic and have adapted to technology. A typical example can be cited under the banking sector where people rarely go to the banks to make deposits and withdrawals but have connected their mobile money accounts to the bank accounts and have downloaded banking apps to their convenience. Some Bank Tellers have been laid off because their services are no more or less required as people make use of ATMs and banking apps and mobile money. The pandemic in a way is serving as a blueprint to what to ideate from the job markets. In this case, a student will not be in a position to aspire to be a bank teller but be in a sophisticated position in the banking sector- technology wise. 
+
+What universities and other academic institutions should do post COVID-19 is to make technology and digitization play a vital role in academia. 
+
+The growth of every institution and field of work depends on how innovative the leaders are and how well-planned they are. I believe there will be a progress in our institutions if these factors are considered.
